@@ -19,4 +19,4 @@ $${\color{#0969DA}because \space i \space cant \space login \space to \space my 
 <img width="2560" height="1440" alt="Image" src="https://github.com/user-attachments/assets/74332816-c29d-461d-9019-7e8fb06c5d60" />
 
 $${\color{#0969DA}my \space oomfie \space got \space copied \space on \space safe \space Indonesia}$$
-
+$${\color{#0969DA}(sorry!, \space i \space did \space a \space spelling \space mistakes)}$$
