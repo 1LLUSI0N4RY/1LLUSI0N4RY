@@ -1,5 +1,5 @@
 
-<img width="1440" height="447" alt="Image" src="https://github.com/user-attachments/assets/745cc450-b997-44ce-850d-d576769b0a48" />
+<img width="1440" height="447" alt="Image" src="https://github.com/user-attachments/assets/2c8ab144-1185-4337-b35f-bf9518de2a9a" />
 
 ## WELCOME TO CYBERSPACE BIOME!!
 
@@ -14,15 +14,15 @@
 
 
 
-~ 🦋 .  . $${\color{#0969DA}BeMyPuppet}$$ .  . 👁 ~
+~ 🦋 .  . $${\color{#0969DA}BEMYPUPPET}$$ .  . 👁 ~
 
 #### ILLUSIONARY DO 67 LELELELELE
 
 <img width="342" height="466" alt="Image" src="https://github.com/user-attachments/assets/dd9c4d8a-91e2-416a-ae02-48fb1729bc1f" />
 
-~ 🦋 .  . $${\color{#0969DA}NowWeAreTheSameBodyIamYouAndyouAreMe}$$ .  . 👁 ~
+~ 🦋 .  . $${\color{#0969DA}NOWWEARETHESAMEBODYIAMYOUANDYOUAREME}$$ .  . 👁 ~
 
-REMINDER! this is my second account, or more likely "abandoned" Second account, Since i cant log in to my first account so im gonna use and take care of this account, you still can follow my first account if yall want and yeah i almost got 500 followers there, so.. help me reach it! =))))))))
+REMINDER! this is my second account, or more likely "abandoned" Second account, Since i cant log in to my first account so im gonna use and take care of this account, you still can follow my first account if yall want and yeah i almost Reach 500 Followers So help me with it!! =))))))
 
 
 
@@ -42,6 +42,6 @@ REMINDER! this is my second account, or more likely "abandoned" Second account, 
 
 ~ 🦋 . " $${\color{#0969DA}UhhhThatWasEmbarassing..}$$ " . 👁 ~
 
-<img width="1536" height="2048" alt="Image" src="https://github.com/user-attachments/assets/035f1dc2-71e3-46e8-a8f2-2f53d662d3c8" />
+<img width="1536" height="1760" alt="Image" src="https://github.com/user-attachments/assets/cf40ddf6-1a9c-41be-b197-c79365d7c1b5" />
 
 ###### drawing by me, do not stole okay? okay
