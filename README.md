@@ -44,7 +44,7 @@ REMINDER! this is my second account, or more likely "abandoned" Second account, 
 
 Images taken around 15th may when my second account is still using @/Zorroakiyama (Sorry for another spelling mistakes and ugly ass handwritting i also make this on school by the way)
 
-i found this Don sonnellino cos On safe indonesian that look exact same like someone from safe server but the shading looks dirty asf, anyway if you the owner of the Don sonnellino skin (The left side) Please sign my ata so let me know well about you!
+i found this Don sonnellino cos On safe indonesian that look exact same like someone from safe server but the shading looks dirty asf, anyway if you the owner of the Don sonnellino skin (The Original) Please sign my ata so let me know well about you!
 
 ~ 🦋 . " $${\color{#0969DA}UhhhThatWasEmbarassing..}$$ " . 👁 ~
 
