@@ -40,6 +40,12 @@ REMINDER! this is my second account, or more likely "abandoned" Second account, 
 
 @ITSTVTIME BRO IM CRINE, you know, that is My Oomfie Noelle, my oomf really despised getting Copied and colorpick and also me, so why did you do that? why didnt you just make noelle in your own style, be creative isnt that hard i swear, no wonder why You began to changing the tail to make it similar even though with different Neck accessories, you think im blind? well take that wall of shame of you
 
+<img width="1920" height="1080" alt="Image" src="https://github.com/user-attachments/assets/7efedaf3-50be-4f9b-aef1-d81fa5058d92" />
+
+Images taken around 15th may when my second account is still using @/Zorroakiyama (Sorry for another spelling mistakes and ugly ass handwritting i also make this on school by the way)
+
+i found this Don sonnellino cos On safe indonesian that look exact same like someone from safe server but the shading looks dirty asf, anyway if you the owner of the Don sonnellino skin (The left side) Please sign my ata so let me know well about you!
+
 ~ 🦋 . " $${\color{#0969DA}UhhhThatWasEmbarassing..}$$ " . 👁 ~
 
 <img width="1536" height="1760" alt="Image" src="https://github.com/user-attachments/assets/cf40ddf6-1a9c-41be-b197-c79365d7c1b5" />
