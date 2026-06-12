@@ -36,7 +36,7 @@ REMINDER! this is my second account, or more likely "abandoned" Second account, 
 
 <img width="2560" height="1440" alt="Image" src="https://github.com/user-attachments/assets/74332816-c29d-461d-9019-7e8fb06c5d60" />
 
-(Sorry if i did mistake! cause i make the image around after i went home after event on my school)
+(Sorry if i did mistake! cause i make the image around after i went home From an event on my school)
 
 @ITSTVTIME BRO IM CRINE, you know, that is My Oomfie Noelle, my oomf really despised getting Copied and colorpick and also me, so why did you do that? why didnt you just make noelle in your own style, be creative isnt that hard i swear, no wonder why You began to changing the tail to make it similar even though with different Neck accessories, you think im blind? well take that wall of shame of you
 
