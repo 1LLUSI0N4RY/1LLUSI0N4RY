@@ -16,11 +16,11 @@
 
 ~ 🦋 .  . $${\color{#0969DA}BEMYPUPPET}$$ .  . 👁 ~
 
-#### ILLUSIONARY DO 67 LELELELELE
+#### ME IF YOU EVEN CARE LELELE
 
 <img width="342" height="466" alt="Image" src="https://github.com/user-attachments/assets/dd9c4d8a-91e2-416a-ae02-48fb1729bc1f" />
 
-~ 🦋 .  . $${\color{#0969DA}NOWWEARETHESAMEBODYIAMYOUANDYOUAREME}$$ .  . 👁 ~
+~ 🦋 .  . $${\color{#0969DA}IAMYOUANDYOUAREME}$$ .  . 👁 ~
 
 REMINDER! this is my second account, or more likely "abandoned" Second account, Since i cant log in to my first account so im gonna use and take care of this account, you still can follow my first account if yall want and yeah i almost Reach 500 Followers So help me with it!! =))))))
 
