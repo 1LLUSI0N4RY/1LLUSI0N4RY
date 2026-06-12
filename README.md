@@ -4,21 +4,33 @@
 ## WELCOME TO CYBERSPACE BIOME!!
 
 <div align="center">
-🦋 . hello! Im Harouyama Yall can Call me Haru, Cassie, and Illusionary! im prefer being called haru but if you decided to call me with other name that related to me I dont mind!, I goes By He/him 
+🦋 . hello! Im Harouyama Yall can Call me Haru, Cassie, and Illusionary! im prefer being called haru but if you decided to call me with other name that related to me I dont mind!, I goes By He/Him
+
+
 
 ☆
 ☆
 ☆
 
-~ 🦋 .  . BE MY PUPPET PLUTO .  . 👁 ~
+
+
+~ 🦋 .  . $${\color{#0969DA}BeMyPuppet}$$ .  . 👁 ~
 
 #### ILLUSIONARY DO 67 LELELELELE
 
 <img width="342" height="466" alt="Image" src="https://github.com/user-attachments/assets/dd9c4d8a-91e2-416a-ae02-48fb1729bc1f" />
 
-~ 🦋 .  . And now.. we stayed together in the same.. body.. i am you, and you are me .  . 👁 ~
+~ 🦋 .  . $${\color{#0969DA}NowWeAreTheSameBodyIamYouAndyouAreMe}$$ .  . 👁 ~
 
 REMINDER! this is my second account, or more likely "abandoned" Second account, Since i cant log in to my first account so im gonna use and take care of this account, you still can follow my first account if yall want and yeah i almost got 500 followers there, so.. help me reach it! =))))))))
+
+
+
+☆
+☆
+☆
+
+
 
 ## WALL OF SHAME IDFK-
 
@@ -27,3 +39,9 @@ REMINDER! this is my second account, or more likely "abandoned" Second account, 
 (Sorry if i did mistake! cause i make the image around after i went home after event on my school)
 
 @ITSTVTIME BRO IM CRINE, you know, that is My Oomfie Noelle, my oomf really despised getting Copied and colorpick and also me, so why did you do that? why didnt you just make noelle in your own style, be creative isnt that hard i swear, no wonder why You began to changing the tail to make it similar even though with different Neck accessories, you think im blind? well take that wall of shame of you
+
+~ 🦋 . " $${\color{#0969DA}UhhhThatWasEmbarassing..}$$ " . 👁 ~
+
+<img width="1536" height="2048" alt="Image" src="https://github.com/user-attachments/assets/035f1dc2-71e3-46e8-a8f2-2f53d662d3c8" />
+
+###### drawing by me, do not stole okay? okay
