@@ -2,9 +2,9 @@
 <img width="1440" height="447" alt="Image" src="https://github.com/user-attachments/assets/2c8ab144-1185-4337-b35f-bf9518de2a9a" />
 
 <div align="center">
+  
 ## WELCOME TO CYBERSPACE BIOME!!
 
-<div align="center">
 🦋 . hello! Im Harouyama Yall can Call me Haru, Cassie, and Illusionary! im prefer being called haru but if you decided to call me with other name that related to me I dont mind!, I goes By He/Him
 
 
