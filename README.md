@@ -53,7 +53,7 @@ i found this Don sonnellino cos On safe indonesian that look exact same like som
 <img width="720" height="1600" alt="Image" src="https://github.com/user-attachments/assets/be1cfc7f-f04d-4126-b78c-358a603640f0" />
 
 and this is what he looks like without the copied skin, Holy Glow down Transition 😭😭😭
-(both source from @w9-6n/wendy on discord ty broski)
+(both source from wendyl on discord ty broski)
 
 ~ 🦋 . " $${\color{#0969DA}UhhhThatWasEmbarassing..}$$ " . 👁 ~
 
