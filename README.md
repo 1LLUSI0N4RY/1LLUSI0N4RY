@@ -48,7 +48,7 @@ i found this Don sonnellino cos On safe indonesian that look exact same like som
 
 <img width="720" height="1600" alt="Image" src="https://github.com/user-attachments/assets/0cdc6b12-a738-48bf-bc06-68794a6881da" />
 
-"Wip teroooooooooos 🗿😜🤙" Realize that your name is soo corny asf and also shame on you for Copying My friend Flof (even though were not that close were known each other from the same regiment) Like once again, BEING CREATIVE Is Not that hard
+"Wip terossss 🗿😜🤙" Realize that your name is soo corny asf and also shame on you for Copying My friend Flof (even though were not that close were known each other from the same regiment) Like once again, BEING CREATIVE Is Not that hard
 
 <img width="720" height="1600" alt="Image" src="https://github.com/user-attachments/assets/be1cfc7f-f04d-4126-b78c-358a603640f0" />
 
