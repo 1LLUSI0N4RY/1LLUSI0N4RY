@@ -42,9 +42,9 @@ REMINDER! this is my second account, or more likely "abandoned" Second account, 
 
 <img width="1920" height="1080" alt="Image" src="https://github.com/user-attachments/assets/7efedaf3-50be-4f9b-aef1-d81fa5058d92" />
 
-Images taken around 15th may when my second account is still using @/Zorroakiyama (Sorry for another spelling mistakes and ugly ass handwritting i also make this on school by the way)
+Images taken around 15th may when my second account is still using @/Zorroakiyama (Sorry for another spelling mistakes and ugly handwritting i also make this on school by the way)
 
-i found this Don sonnellino cos On safe indonesian that look exact same like someone from safe server but the shading looks dirty asf, anyway if you the owner of the Don sonnellino skin (The Original) Please sign my ata so let me know well about you!
+i found this Don sonnellino cos On safe indonesian that look exact same like someone from safe server but the shading looks dirty, anyway if you the owner of the Don sonnellino skin (The Original) Please sign my ata so let me know well about you!
 
 <img width="720" height="1600" alt="Image" src="https://github.com/user-attachments/assets/0cdc6b12-a738-48bf-bc06-68794a6881da" />
 
