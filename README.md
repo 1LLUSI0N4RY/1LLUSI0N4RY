@@ -32,7 +32,7 @@ REMINDER! this is my second account, or more likely "abandoned" Second account, 
 
 
 
-## WALL OF SHAME IDFK-
+## WALL OF SHAME TIME!!
 
 <img width="2560" height="1440" alt="Image" src="https://github.com/user-attachments/assets/74332816-c29d-461d-9019-7e8fb06c5d60" />
 
@@ -45,6 +45,14 @@ REMINDER! this is my second account, or more likely "abandoned" Second account, 
 Images taken around 15th may when my second account is still using @/Zorroakiyama (Sorry for another spelling mistakes and ugly ass handwritting i also make this on school by the way)
 
 i found this Don sonnellino cos On safe indonesian that look exact same like someone from safe server but the shading looks dirty asf, anyway if you the owner of the Don sonnellino skin (The Original) Please sign my ata so let me know well about you!
+
+<img width="720" height="1600" alt="Image" src="https://github.com/user-attachments/assets/0cdc6b12-a738-48bf-bc06-68794a6881da" />
+
+"Wip teroooooooooos 🗿😜🤙" Realize that your name is soo corny asf and also shame on you for Copying My friend Flof (even though were not that close were known each other from the same regiment) Like once again, BEING CREATIVE Is Not that hard
+
+<img width="720" height="1600" alt="Image" src="https://github.com/user-attachments/assets/be1cfc7f-f04d-4126-b78c-358a603640f0" />
+
+and this is what he looks like without the copied skin, Holy Glow down Transation 😭😭😭
 
 ~ 🦋 . " $${\color{#0969DA}UhhhThatWasEmbarassing..}$$ " . 👁 ~
 
