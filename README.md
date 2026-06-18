@@ -1,6 +1,7 @@
 
 <img width="1440" height="447" alt="Image" src="https://github.com/user-attachments/assets/2c8ab144-1185-4337-b35f-bf9518de2a9a" />
 
+<div align="center">
 ## WELCOME TO CYBERSPACE BIOME!!
 
 <div align="center">
