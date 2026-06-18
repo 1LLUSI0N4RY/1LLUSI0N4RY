@@ -7,7 +7,15 @@
 
 🦋 . hello! Im Harouyama Yall can Call me Haru, Cassie, and Illusionary! im prefer being called haru but if you decided to call me with other name that related to me I dont mind!, I goes By He/Him
 
+Also Im a Roblox artist! and i more likely draw Sol's RNG (My current Hyperfixation) Dandy's world, Phighting, die of Death and more , honestly I have twitter But its a Dead Account ='], But Dont worry! I post most of my arts on my google drive!
 
+##### My Main Arts
+https://drive.google.com/drive/folders/1ZSEndaMe19XLTgGI-VLlPcgLIVR1m4MF
+
+##### My Sol's RNG Arts + Stuff
+https://drive.google.com/drive/folders/1HF6P3jChFqVOTseSlyCBS5ffXLuIs16R
+
+###### (All of that Belongs To me!, Do not Stole nor Trace it, If you decided to.. i will find you, just kidding, probably put you on wall of shame/block you)
 
 ☆
 ☆
@@ -55,6 +63,8 @@ i found this Don sonnellino cos On safe indonesian that look exact same like som
 
 and this is what he looks like without the copied skin, Holy Glow down Transition 😭😭😭
 (both source from wendyl on discord ty broski)
+
+i might moved all of this to rentry soon if my READ.ME already full with Bunch BS
 
 ~ 🦋 . " $${\color{#0969DA}UhhhThatWasEmbarassing..}$$ " . 👁 ~
 
