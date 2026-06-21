@@ -9,13 +9,7 @@
 
 Also Im a Roblox artist! and i more likely draw Sol's RNG (My current Hyperfixation) Dandy's world, Phighting, die of Death and more , honestly I have twitter But its a Dead Account ='], But Dont worry! I post most of my arts on my google drive!
 
-##### My Main Arts
-https://drive.google.com/drive/folders/1ZSEndaMe19XLTgGI-VLlPcgLIVR1m4MF
 
-##### My Sol's RNG Arts + Stuff
-https://drive.google.com/drive/folders/1HF6P3jChFqVOTseSlyCBS5ffXLuIs16R
-
-###### (All of that Belongs To me!, Do not Stole nor Trace it, If you decided to.. i will find you, just kidding, probably put you on wall of shame/block you)
 
 ☆
 ☆
